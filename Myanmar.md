@@ -52,9 +52,9 @@ Nhưng data thì chịu, hơn nữa anh Tuyền ở myanmar đã dùng được 
 
 
 loay hoay mãi các kiểu mà không kết nối được mạng của Telenor. chúng tôi vội lên xe taxi về tới bến xe Aung Mingalar Highway Bus station.
-Các anh taxi khá là thân thiện cũng thi thoảng cười đểu tôi khi tôi bước nhầm sang bên tay lái bên phải, vì ở Việt nam chúng tôi không làm vậy.
+Các anh taxi khá là thân thiện cũng thi thoảng cười đểu tôi khi tôi bước nhầm sang bên tay lái bên phải, vì ở Việt nam "chúng tôi không làm vậy".
 
-phải nói taxi ở đây có mùi chanh leo khá dễ chịu (tên chanh leo là từ chị em đặt). lên tôi tỉnh táo hẳn, hít lấy hít để, chém gió cùng anh taxi đồng thời cố gắng kích hoạt cái sim tê lê no này mà ko được, sau 1 lúc thì xe ô tô cũng dừng nhiều nên cơn say lại ùa về. thôi ko hít nữa lại nằm ngủ, đắm chìm trong âm nhạc tôi vào giấc.
+phải nói taxi ở đây có mùi chanh leo khá dễ chịu (tên chanh leo là từ chị em đặt). lên tôi tỉnh táo hẳn, hít lấy hít để, chém gió cùng anh taxi đồng thời cố gắng kích hoạt cái sim tê-lê-no này mà ko được, sau 1 lúc thì xe ô tô cũng dừng nhiều nên cơn say lại ùa về. thôi ko hít nữa lại nằm ngủ, đắm chìm trong âm nhạc tôi vào giấc.
 
 vèo cái đến bến xe. taxi vào bến là sẽ mất đâu đó 500 Kyat (8k VND) tôi ko nhớ rõ (nhưng anh taxi nhờ bọn tôi trả tiền, ko giống anh taxi đưa từ bagan ra bến xe anh ý tự trả)
 
@@ -65,12 +65,12 @@ Yêu cầu passport được đáp ứng xong là chúng tôi mỗi người 1 v
 
 Xong xuôi là đòi tiền refund. Show cái email từ nhà xe họ gửi cho mình, em nhân viên cũng chẳng cần hỏi nhiều, trả tiền refund cho tôi rất chuyên nghiệp, hơi shock vì chả phải nói nhiều. <3
 
-8h kém 15 tại Aung Mingalar, chúng tôi tìm 1 quán cơm bình dân để trải nghiệm "ẩm thực" xem ở đây có phải như chúng tôi đã đọc không. Không cần phải bàn cãi nữa, nó đúng là như vậy, cà-ri hơi cay mặn cùng với món trứng mặn, tất cả đã bắt đầu cho 1 chuỗi ngày khá ngán ngẩm với gia vị ẩm thực tại đây. Nói thế thôi tôi cũng chén hết 1 đĩa cơm, 7 8 con tôm gì đó , 1 trứng và 2 3 miếng thịt. No nê gì dự đoán  10 tiếng sắp tới cũng há mồm cũng ko ăn được.
+8h kém 15 tại Aung Mingalar, chúng tôi tìm 1 quán cơm bình dân để trải nghiệm "ẩm thực" xem ở đây có phải như những gì đã đọc không. Không cần phải bàn cãi nữa, nó đúng là như vậy, cà-ri hơi cay mặn cùng với món trứng mặn, tất cả đã bắt đầu cho 1 chuỗi ngày khá ngán ngẩm với gia vị ẩm thực tại đây. Nói thế thôi tôi cũng chén hết 1 đĩa cơm, 7 8 con tôm gì đó , 1 trứng và 2 3 miếng thịt. No nê gì dự đoán  10 tiếng sắp tới cũng há mồm cũng ko ăn được.
 
 Nhưng đồng tiên đầu tiên được tiêu của chúng tôi ko phải bắt đầu ở nhà mạng Telenor, mà chúng thực sự được tiêu ở quán cơm bình dân này. Lần đầu tiên tôi phát hiện ra bà Pink Pink với cả Hiền đã hao mòn không còn kỹ năng tính toán nữa, họ có vẻ bây giờ làm việc như bản năng.hizz.
 Cũng may mình vẫn hứng thú với những đồng tiền lạ nên đã kiên nhẫn nhân từng Kyat một với 15 nghìn VNĐ. Chúng tôi tiêu đâu đó 15000 Kyat cho bữa cơm 6 người này.
 
-8h 15, lên xe JJ Express, tôi ngồi với bà chị Pink (Hiền với a Tuyền, chị Linh với a Phụng, xe và tài xe) check in được kiểu ảnh xong tôi bẻ hết ghế ra,kể cũng đủ dùng, (khá thoải mái), tôi yên vị, nằm như giả vờ chết khi người ta gặp Gấu rừng. Nhưng chuyến đi trước đó đã cho tôi kinh nghiệm nhạc càng gắn liền với mình càng nhiều thì càng tốt, remix gần 10 tiếng mới dễ ngủ, nhạc dễ đoán quá lại dễ say.
+8h 15, lên xe JJ Express, tôi ngồi với bà chị Pink (Hiền với a Tuyền, chị Linh với a Phụng, xe và tài xe) check in được kiểu ảnh xong tôi bẻ hết ghế ra,kể cũng đủ dùng, (khá thoải mái), tôi yên vị, nằm như chết. Nhưng chuyến đi trước đó đã cho tôi kinh nghiệm nhạc càng gắn liền với mình càng nhiều thì càng tốt, remix gần 10 tiếng mới dễ ngủ, nhạc dễ đoán quá lại dễ say.
 
 Loanh quanh lại bị gọi dậy cứ tưởng là 2 3 giờ sáng, thế mà mới 10h, đăng ngủ lăn ra tỉnh.
 Xuống xe đập vào mắt tôi là KFC quán khá to, nhìn thì có vẻ bên trong bật điều hòa khá lạnh nên ở ngoài chảy bao nhiêu là nước lên kính.
@@ -81,7 +81,7 @@ lần đầu tiên check in phòng rét run (restroom) ở đây, ấn tượng 
 
 Lần thứ hai trong đêm tôi lại phải động não để mua mấy đồ lặt vặt cho cả đoàn. người coca, người giấy, người kẹo cao su bạc hà, người hướng dương vị tỏi, tất cả khiến em bán hàng trở tay ko kịp. đang buồn ngủ mà phải nói tiếng anh rồi lại bắt tính toán, tôi vẫn "không phụ lòng" các anh chị em. Từ đó được giao cầm tiền lẻ, hehe.
 
-Quay trở lại hành trình 10 tiếng xuyên màn đêm trên xe bus số 17 của JJ Express, tôi lại chìm đắm vào những bản nhạc đi cùng năm tháng, còn chị Hồng thì như trẻ gắt ngủ trong cũi , thỉnh thoảng lại ré lên 1 cái, kèm theo là 1 câu chửi, văng vẳng bên tai tôi. Muốn giúp lắm mà người say làm sao giúp được người tỉnh. Mình ko phải tuổi rắn nhưng cũng khá dẻo để nằm gọn được trên ghế, yên vị.
+Quay trở lại hành trình 10 tiếng xuyên màn đêm trên xe bus số 17 của JJ Express, tôi lại chìm đắm vào những bản nhạc đi cùng năm tháng, còn chị Hồng thì như trẻ gắt ngủ trong cũi , thỉnh thoảng lại ré lên 1 cái, kèm theo là 1 câu chửi, văng vẳng bên tai tôi. Muốn giúp lắm mà người say làm sao giúp được người tỉnh. Mình ko phải tuổi rắn nhưng cũng khá dẻo để nằm gọn được bên trong ghế, yên vị.
 
 ... Xe lại dừng, chị Hồng gắt ngủ đòi ra khỏi cũi đi vệ sinh, đang lim dim thì tôi thấy cũi đung đưa, Ô bổ mẹ! chị Hồng đâu ??? tất cả anh em đứng dậy, còn a Phụng lao nhanh như đuổi theo trộm bảo bác Tài dừng lại. Hóa ra là bác di chuyển xe tí cho vui, làm gì căng!, chị Linh và chị Hồng đi khá lâu nên tôi cũng khá lo, không ngủ được, hồi hộp đợi hai chị em quay về. 
 
